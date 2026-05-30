@@ -33,7 +33,10 @@
 <div align="center">
 
 
-<br/>$${\small\color{#9face3}I \space\space grant \space\space you \space\space a \space\space Dawn \space\space where \space\space all \space\space stars \space\space burn \space\space to \space\space Ash.}$$  phainonineedyoutokissmerightnoworillexplode
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Poppins&size=18&pause=1000&color=A6C3E2&center=true&vCenter=true&width=435&lines=Even+after+going+through+108%2C642+cycles...;Mydei...+your+name+for+me+has+never+changed.)](https://git.io/typing-svg)
+
+<img src="https://file.garden/aTDatBJtJjtpnqjn/macrosmicontumblr.jpg" width="600" align="center" title="Why do you sound so pleased? It's a derogatory name.">
+
  
 
  <br>
@@ -49,26 +52,12 @@
     <tr align="center"></tr>
       <td>
         <br>
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR4FuL1oUMR9bjHIxwGyTZiyKO0axRDiOqtHQ&s" width="100" align="right" alt="phainon">
-
-$\color{#4a61ba}{\textsf{δ-me13}}$ $\color{#4a61ba}{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀FurinaTheFountain.file}}$ <br>
-<ins>──────────────────────────</ins> <br>
-$\color{#9face3}{\textsf{Rose ⊹}}$ $\color{#4a61ba}{\textsf{ ໑ₛ }}$ $\color{#9face3}{\textsf{Any Pronouns}}$ $\color{#4a61ba}{\textsf{(ᵉˣᵉᵖᵗ It/Its)}}$ ⠀<img src="https://64.media.tumblr.com/845e1b3fec1b08d6470842f26e0794ab/4ebe151b092f0f90-03/s75x75_c1/49b7be3d8b52b6cf84a8f65d4df5a50305505492.gifv" width="15" alt="star"> <br>
-<img src="https://64.media.tumblr.com/845e1b3fec1b08d6470842f26e0794ab/4ebe151b092f0f90-03/s75x75_c1/49b7be3d8b52b6cf84a8f65d4df5a50305505492.gifv" width="15" alt="star">⠀ $\color{#9face3}{\textsf{yumeshipper}}$ $\color{#4a61ba}{\textsf{⠀୭⠀17y/o⠀꒦꒷ ⠀}}$ $\color{#9face3}{\textsf{silly}}$ <br>
-<ins>──────────────────────────</ins> <br><br>
-
-𝐃𝐍𝐂 my Skins! ask me for 𝚰𝐍𝐒𝐏𝐎⠀(✦◡✦) <br>
-always **AFK/Semi-AFK** at Hoyo Area, feel free to **IWC** if im not **AFK.** if<br>
-im **AFK**, dont feel afraid to **whisp** me! i dont bite trust, RABIES ALERT--
-
- <img src="https://64.media.tumblr.com/dbc3bb610876fd76cc63f24b9aa3ce36/3cf57464da3c3279-2f/s400x600/8fb8cc874ef423a1f5bfcb5e4a55acc39a86560b.pnj" width="240" height="auto" title="phainon of aedes elysiae"></a>
- <img src="https://64.media.tumblr.com/dd61891a5737d894b41dbda9e9ca2f7c/3cf57464da3c3279-f2/s400x600/1d33016902b9010518e4d52ae56cb09f1bffa97a.pnj" width="240" height="auto" title="mydei of castrum kremnos"></a>
 
 
- <table border="0" align="left">
+<table border="0" align="left">
     <tr></tr>
       <th>
-  <details>
+   <details>
         <summary>$\color{#4a61ba}{\textsf{About Me}}$</summary>
     
 you could check my rentry, even though<br>
@@ -79,7 +68,7 @@ other than that, im a big ah sensitive ball
     
   </details>
       </th>
-  </table>
+   </table>
 
 <table border="0" align="left">
     <tr></tr>
@@ -113,12 +102,14 @@ flamereaver and khaslana + nikador & kephale
     <tr></tr>
       <th>
    <details>
-        <summary>$\color{#4a61ba}{\textsf{Other}}$</summary>
+        <summary>$\color{#4a61ba}{\textsf{Randoms stuff}}$</summary>
 
-soo like.. if my rentrys still say im 16 <br>
-its because i cant go in site and edit it to 17<br>
-idk HOW github opens while iran has a whole ah<br>
-internet problem <3 yea my bdays on may 19
+questioning gender like it owns me answers <br>
+like wym i dont gaf if others view me as male <br>
+or female but dont feel like both of those at all <br>
+idk if thats nonbinary at all, i got called that <br>
+sooo much irl guys is this allegations is the closet <br>
+clear? DOES THE CLOSET EXIST IM NOT COMING OUT--
 
      
   </details>
@@ -131,26 +122,31 @@ internet problem <3 yea my bdays on may 19
    <details>
         <summary>$\color{#4a61ba}{\textsf{Credits}}$</summary>
 
-official art, evixah on tumblr for the<br>
-yume sticks thing, Vexuliii on github for<br>
-uhh the codes yea YOU A LIFE SAFER FR BRO
+official art, evixah on tumblr for the <br>
+yume sticks thing, art by Marcosmic on X <br>
+Vexuliii on github for uhh the codes yea <br>
+YOU A LIFE SAFER FR BRO and cool check em out
      
   </details>
               </th>
+
   </table>
         <br>
-<img src="https://64.media.tumblr.com/3643664eba779d8b99d48d77a50ff3f5/3cf57464da3c3279-fc/s400x600/6c06cb578fc72391e27b1c906728b7e7ebb9c417.pnj" width="240" height="auto" title="mydei of castrum kremnos"></a>
-<img src="https://64.media.tumblr.com/8640bf6f898aa935c575a15a93cef267/3cf57464da3c3279-c8/s400x600/78de646f94ecee3cad8e8bbd2b3a9b9b67c8f8d5.pnj" width="240" height="auto" title="phainon of aedes elysiae"></a>        
         <br><br>
+Do you still remember him, Khaslana, the one who won't reach the dawn? <img src="https://media.tenor.com/tNTJSpg7s_cAAAAj/phainon-mydei.gif" width="30" align="center" title="the thing i imagine after amphoreus ending (mentally ill because of shaoji/silly)">
       </th>
-  </table>
-        <br>
-      </td>
-    </tr>
   </table>
 
 ㅤ
 
+
+
+
+
+
+shipping wiki what is this you put for phaidei page
+
+<img width="411" height="33" alt="image" src="https://github.com/user-attachments/assets/c2338666-ef8d-4ba4-84a1-f892e19d37d3" />
 
 
 
