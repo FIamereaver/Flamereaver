@@ -39,11 +39,6 @@
 
  
 
- <br>
- <br>
- 
- <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRDYtP6dcJLDOWqq7AiYByroHPfSPULpiTMCQ&s" width="200" align="left" alt="phainon">
- <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR84LTa-_gjmvVDjjPk0hUE6E47b_C37da98A&s" width="200" align="right" alt="mydei">
 
 
 <br>
@@ -139,6 +134,11 @@ Do you still remember him, Khaslana, the one who won't reach the dawn? <img src=
 
 ㅤ
 
+<br>
+ <br>
+ 
+ <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRDYtP6dcJLDOWqq7AiYByroHPfSPULpiTMCQ&s" width="200" align="left" alt="phainon">
+ <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR84LTa-_gjmvVDjjPk0hUE6E47b_C37da98A&s" width="200" align="right" alt="mydei">
 
 
 
