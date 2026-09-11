@@ -86,8 +86,7 @@ flamereaver and khaslana + nikador & kephale
    <details>
         <summary>$\color{#4a61ba}{\textsf{Friends}}$</summary>
 
-<a href="https://github.com/Alicefpeofficial"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQa12jfqc3-qS5D7RQGpElmCxbH0R5_dT-czQ&s" width="50" height="auto" title="Zoya"></a>  <a href="https://github.com/TheN0ctua"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQqehGAMdVM9kEGMWbX54LcthsoUnZNXy_Otw&s" width="50" height="auto" title="Kuji"></a>  <a href="https://github.com/MikoTheCreature"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTiPfd5aHr0qWrbH11HWVD9S_qaiPxGPVEbDQ&s" width="50" height="auto" title="miko"></a> <br>
-<a href="https://github.com/Phaexie"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTV3mt7_RqUaJyTUSKrn1xuF-L3LhQBU9h_Hw&s" width="50" height="auto" title="phaexie"></a>  <a href="https://github.com/ToasterTheFox"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSPYDbQOPd7QuLQjlKpY_3k_HxLnus3K7ESeg&s" width="50" height="auto" title="toaster"></a>ㅤ<sup> **𝘦𝘵𝘤**
+<a href="https://github.com/Alicefpeofficial"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQa12jfqc3-qS5D7RQGpElmCxbH0R5_dT-czQ&s" width="50" height="auto" title="Zoya"></a>  <a href="https://github.com/TheN0ctua"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQqehGAMdVM9kEGMWbX54LcthsoUnZNXy_Otw&s" width="50" height="auto" title="Kuji"></a>  <a href="https://github.com/MikoTheCreature"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTiPfd5aHr0qWrbH11HWVD9S_qaiPxGPVEbDQ&s" width="50" height="auto" title="miko"></a>ㅤ<sup> **𝘦𝘵𝘤**ㅤ
 
      
   </details>
