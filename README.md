@@ -55,11 +55,11 @@
    <details>
         <summary>$\color{#4a61ba}{\textsf{About Me}}$</summary>
     
-you could check my rentry, even though<br>
-its outdated af theres still some stuff<br>
-inside lols, when irans internet gets<br>
-fixed ill fix that messy ah rentry<br><br>
-other than that, im a big ah sensitive ball
+u could check my strawpg, other than that,<br>
+hi hi waves im puppy.. IM INSIDE YOUR WALLS<br>
+jk.. i say as i have chalk in my mouth mm <br>
+yes iron definciency <3 oh yea & my net? hot<br><br>
+trash, far worse than lygus, damn u lygus >:(
     
   </details>
       </th>
