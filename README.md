@@ -98,12 +98,11 @@ flamereaver and khaslana + nikador & kephale
    <details>
         <summary>$\color{#4a61ba}{\textsf{Randoms stuff}}$</summary>
 
-questioning gender like it owns me answers <br>
-like wym i dont gaf if others view me as male <br>
-or female but dont feel like both of those at all <br>
-idk if thats nonbinary at all, i got called that <br>
-sooo much irl guys is this allegations is the closet <br>
-clear? DOES THE CLOSET EXIST IM NOT COMING OUT--
+PLS PLS PLS include me in pony town stuff <br>
+like those githubs with pony town award & <br>
+fun competition, its so fun pls pls pls <br>
+i keep trying to join some but its either <br>
+a dead account, discontinued or etc.. SOBS
 
      
   </details>
