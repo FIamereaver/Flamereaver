@@ -96,13 +96,10 @@ flamereaver and khaslana + nikador & kephale
     <tr></tr>
       <th>
    <details>
-        <summary>$\color{#4a61ba}{\textsf{Randoms stuff}}$</summary>
+        <summary>$\color{#4a61ba}{\textsf{Nominations}}$</summary>
 
-PLS PLS PLS include me in pony town stuff <br>
-like those githubs with pony town award & <br>
-fun competition, its so fun pls pls pls <br>
-i keep trying to join some but its either <br>
-a dead account, discontinued or etc.. SOBS
+[pony towns flamereaver](https://github.com/ponytowns-rewards) <3 <br>
+thats all (for now hehehe..)
 
      
   </details>
