@@ -70,3 +70,27 @@ shipping wiki what is this you put for phaidei page
 
 
 
+oh yea and the art above above bove is by @marcosmic on twitter/tumblr
+
+
+<br><br><br>
+
+
+
+
+
+
+
+
+
+ANYWAY welcome to my official yappington kingdom about my yumes
+
+
+<br><br>
+
+
+mydei cooks for me phainon khaslana and flamereaver /silly
+last time i cooked.. well.. yea im banned from the kitchen
+mydei can keep cooking bro </3 </3 flamereaver is quiet
+usually but its ok hes a silly willy OK IM TIRED BYE NEXT TIME
+I WRITE MORE IDK IDK
